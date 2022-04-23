@@ -8,20 +8,7 @@ hello.java
 hello.java
 hello.java
 hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hello.java
-hjava
-hello.java
-hello.java
-ma de dhaidfaoifandfaldfnalnfiandbcjaodfnakdnfka去你奶奶的
+ma de daidfaoifandfaldfnalnfiandbcjaodfnakdnfka去你奶奶的
+fuckjava
+fuckjava
+fuckjava
